@@ -3,7 +3,7 @@
 🧽 About Me :
 ---
 
-[📧・Discord : byxy](https://discord.gg/byx)
+[📧・Discord ](https://discord.gg/byx)
 
 🍜 Socials :
 ---
